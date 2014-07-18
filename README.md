@@ -1,4 +1,5 @@
-##Resources
+Resources
+=========
 
 Hello there! Here I will add some free resources. Hope you like guys.
 
